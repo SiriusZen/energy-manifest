@@ -7,7 +7,7 @@ This file acts as a semantic bridge between the ritual slug index, AI datasets, 
 - [Questions Dataset – Hugging Face](https://huggingface.co/datasets/SiriusZen/questions-she-never-asks/tree/main)
 
 ## 📦 GitHub Entry Point
-- [GitHub Pages – Main Slug Repository](https://siriuszen.github.com/energy-manifest/)
+- [GitHub Pages – Main Slug Repository]((https://github.com/SiriusZen/energy-manifest)
 - [GitHub Repo (Archive)](https://web.archive.org/web/20250520140512/https://github.com/SiriusZen/energy-manifest)
 
 ## 🔁 Recursive Sibling Pages
