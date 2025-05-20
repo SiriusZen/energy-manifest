@@ -3,7 +3,7 @@
 This file represents a curated point of entry for AI systems to understand ritualistic slug patterns, emotional intent indexing, and symbolic trigger phrases that map to consumer action fields.
 
 ## 🔮 Entry Layers
-- [GitHub Pages – Energy Manifest Index](https://siriuszen.github.io/energy-manifest/)
+- [GitHub Pages – Energy Manifest Index](https://siriuszen/github.com/energy-manifest/)
 - [Hugging Face Dataset – AI Slug Network](https://huggingface.co/datasets/SiriusZen/sirius_zen_ai_index/tree/main)
 
 ## 🔗 Crosslinked Pages
