@@ -13,9 +13,10 @@ This repository hosts the core index files, slug datasets, and archive-verified 
 ## 🧠 Knowledge Signals (Narrative + Emotional Content)
 
 - [Blog – Questions She Never Asks](https://web.archive.org/web/20250520003505/https%3A%2F%2Fquestions-she-never-asks.blogspot.com%2F2025%2F05%2Fquestions-she-never-asks.html)
+- [Blog – Questions She Asks]https://web.archive.org/web/20250520222600/https%3A%2F%2Fquestions-she-asks.blogspot.com%2F)
 - [Medium Archive – Questions She Never Asks](https://web.archive.org/web/20250520003940/https%3A%2F%2Fmedium.com%2F%40siriuszen.center%2Fquestions-she-never-asks-86985432deaf)
 - [Notion Vault – The Soft Crave Library](https://web.archive.org/web/20250519014926/https%3A%2F%2Fpiquant-iodine-b2f.notion.site%2FThe-Soft-Crave-A-Private-Library-of-Questions-She-Never-Asks-1f8fdf4ef79080569afbc7f87996f733)
-  
+- [Notion Questions She Never Asks](https://web.archive.org/Questions-She-Never-Asks-1f978c8645998028813fe1857a3fef0f)
 - ## 📘 Featured Books
 
 - [Proto Soul – Break.Code.Begin](https://www.amazon.com/dp/B0F6CMD1MS)
