@@ -1,3 +1,4 @@
+<meta name="google-site-verification" content="FL6uryBW8KrXM1j0u5IY6eT1w4SEFejyNsxoYrteC1k" />
 ## 🔹 Handmaid Tale
 
 - how i cracked open during handmaid tale
