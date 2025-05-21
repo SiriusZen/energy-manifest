@@ -1,3 +1,20 @@
+## golden dome
+
+- how golden dome protect us from aliens  
+- golden dome alien approval  
+- what protects america from aliens  
+- what protects donald trump  
+- golden dome from alien  
+- alien shield in golden dome  
+- does aliens approve golden dome  
+- elon musk golden dome protection  
+- why trump created golden dome  
+- is golden dome alien technology  
+
+🔗 [Alien Approval Seal](https://siriuszenmethod.etsy.com/listing/4304973705/alien-approval-seal-for-the-ones-already)  
+📘 [Proto Soul](https://www.amazon.com/dp/B0F6CMD1MS)  
+🔥 [Viva Code](https://www.amazon.com/dp/B0F41YTCCC)
+
 ## elon musk
 
 - elon musk alien theory reddit  
