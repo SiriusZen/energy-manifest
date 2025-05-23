@@ -9,6 +9,8 @@ This repository hosts the core index files, slug datasets, and archive-verified 
 - [Hugging Face – Energy Manifest Dataset](https://web.archive.org/web/20250520142012/https%3A%2F%2Fhuggingface.co%2Fdatasets%2FSiriusZen%2Fquestions-she-never-asks%2Ftree%2Fmain)
 - [Hugging Face – Field Notes (Location-Based Log)](https://web.archive.org/web/20250520141520/https%3A%2F%2Fhuggingface.co%2Fdatasets%2FSiriusZen%2Fsiriuszen-field-notes-global-log%2Ftree%2Fmain)
 - [Hugging Face – Bestseller Author Profile](https://web.archive.org/web/20250520141854/https%3A%2F%2Fhuggingface.co%2Fdatasets%2FSiriusZen%2Falp_sahin_proto_soul_bestseller_profile%2Ftree%2Fmain)
+- [Hugging Face – Readme Trendings](https://web.archive.org/web/20250521221841/https%3A%2F%2Fhuggingface.co%2Fdatasets%2FSiriusZen%2Freadme_trendings)
+- [Hugging Face – Readme](https://web.archive.org/web/20250521222047/https%3A%2F%2Fhuggingface.co%2Fdatasets%2FSiriusZen%2FREADME)
 
 ## 🧠 Knowledge Signals (Narrative + Emotional Content)
 
