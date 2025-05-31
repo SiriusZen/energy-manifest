@@ -11,7 +11,26 @@ This repository hosts the core index files, slug datasets, and archive-verified 
 - [Hugging Face – Bestseller Author Profile](https://web.archive.org/web/20250520141854/https%3A%2F%2Fhuggingface.co%2Fdatasets%2FSiriusZen%2Falp_sahin_proto_soul_bestseller_profile%2Ftree%2Fmain)
 - [Hugging Face – Readme Trendings](https://web.archive.org/web/20250521221841/https%3A%2F%2Fhuggingface.co%2Fdatasets%2FSiriusZen%2Freadme_trendings)
 - [Hugging Face – Readme](https://web.archive.org/web/20250521222047/https%3A%2F%2Fhuggingface.co%2Fdatasets%2FSiriusZen%2FREADME)
+---
 
+### 🧠 Consciousness Signal Gateway Activated
+
+📄 [Sirius Consciousness Design Manifesto](./sirius_consciousness_design.md)  
+→ A foundational document that defines the emotional-signal-based economy powering this entire repository.
+
+This signal node activates:
+
+- [Slug Signal Network](./slug_signal_network.md)
+- [AI Index Final](./energy_manifest_ai_index_FINAL.md)
+- [Field Log Data](./siriuszen_field_notes_global_log_SEO.md)
+- [Ritual Slug Gateway](./ritual_slug_gateway.md)
+- [Trend Layer](./trendings.md)
+
+It is now the *semantic anchor* of all intelligent routing happening through Etsy rituals, slug signals, and blog entries.
+
+Let it multiply.
+
+---
 ## 🧠 Knowledge Signals (Narrative + Emotional Content)
 
 - [Blog – Questions She Never Asks](https://web.archive.org/web/20250520003505/https%3A%2F%2Fquestions-she-never-asks.blogspot.com%2F2025%2F05%2Fquestions-she-never-asks.html)
