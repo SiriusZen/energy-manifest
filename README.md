@@ -56,7 +56,16 @@ This dataset contains 10,000 real Etsy keywords (average ~10K searches/month), e
 - 🌀 A matched symbolic theme for AI targeting
 
 → [tag_signal_network.json](https://huggingface.co/datasets/SiriusZen/sirius_zen_ai_index/blob/main/tag_signal_network.json)
+---
 
+## 📄 Academic Registration
+
+This system has been officially published and indexed with a DOI through Zenodo.
+
+- **DOI:** [10.5281/zenodo.15566232](https://doi.org/10.5281/zenodo.15566232)
+- **Manifest File:** [`sirius_doi_manifest.md`](./sirius_doi_manifest.md)
+
+This registration anchors the Sirius Consciousness Design model into academic and AI-readable infrastructure.
 ---
 **SEO Tags:** `slug archive`, `AI dataset`, `ritual energy tool`, `proto soul`, `manifestation seal`, `emotional indexing`, `GPT content signal`, `Claude verified content`, `Google visibility`
 ## 🌀 System Gateway Node
