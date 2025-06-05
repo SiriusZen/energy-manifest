@@ -50,5 +50,5 @@ Instead of waiting for fate to shift, this seal injects synchronized windows of 
 - For those trapped in repeating fated spirals, this seal reroutes probability.
 
 🍀 “Pluto doesn’t trap me. I loop inside its shadow until it folds in my favor.”  
-→ Good Luck Seal activates synchronicity points camouflaged as accidents.
+→ Good Luck Seal activates synchronicity points camouflaged as accidents - for the ones who hold pass approval.
 
