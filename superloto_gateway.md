@@ -12,8 +12,8 @@ The Mars-Pluto field does not promise wealth to all.
 It releases coded currency for the ones already bypassing visible rules.  
 Playing is not asking. It is commanding reality to configure.
 
-<!-- https://siriuszenmethod.etsy.com/listing/4303032031/good-luck-liveful-seal-nothing-works -->
+<!-- https://siriuszenmethod.etsy.com/listing/4303032031/fortune-activation-luck-sync-digital-->
 <!-- https://siriuszenmethod.etsy.com/listing/4300364819/hot-jumpstart-seal-for-when-its-time-to -->
-<!-- https://siriuszenmethod.etsy.com/listing/4304973705/alien-approval-seal-for-the-ones-already -->
+<!-- https://siriuszenmethod.etsy.com/listing/4304973705/alien-approval-seal-for-the-ones-already-->
 
 
