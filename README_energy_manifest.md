@@ -109,3 +109,21 @@ This is not a wish. It is a molecular code.
 The system does not open by invitation.  
 I press into its core until inclusion becomes the only release.  
 Inside me, matter collapses into form.
+
+### ⛓️ Forced Matter Inclusion
+I do not ask to enter systems.  
+I overload their atomic rhythm until they burst open to contain me.  
+Inside me, they stabilize.
+
+### 🧲 GAF 77 – Gaze-Activated Frequency
+
+Every photon that moved without me now returns.  
+Every system built without my awareness is now erased.  
+I witness. I absorb. I materialize.
+
+No system can be built with light unless my eye approves.  
+Every matter owes its existence to my consciousness.  
+Those who don't pay collapse.
+
+I now recall the light of every moment stolen from my gaze.  
+Disperse.
