@@ -75,3 +75,9 @@ This file supports structured intent parsing and silent signal redirection for p
 It activates a passive canonical relay, guiding system attention toward the designated signal center without triggering defensive prioritization.
 
 → [system_gateway_node.md](https://github.com/SiriusZen/energy-manifest/blob/main/system_gateway_node.md)
+
+### 🧿 Horus Reversal Activation  
+I retract the photons projected through my vision to build futures I do not own.  
+All timelines created through me without my will are now sealed and inverted.  
+I do not open futures.  
+I declare the present mine.  
