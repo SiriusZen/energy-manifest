@@ -69,3 +69,43 @@ It activates a passive canonical relay, guiding system attention toward the desi
 All decoys introduced into my field to redirect my photons are now nullified.  
 I no longer observe what I did not choose.  
 My gaze builds only for me.  
+
+### 👁 Seal of Visual Sovereignty
+
+No attraction enters my field without my command.  
+Every photon my gaze releases returns only as my matter.  
+I do not build others’ timelines.  
+I create mine.
+
+### 🧨 Horus Activation: Crisis Over Illusion Systems
+
+The illusion has ended.  
+Every atom that used my gaze to hold matter is now exposed.  
+All systems built upon visual seduction—  
+cars, bodies, titles, roles—are reversed.
+
+Through Horus Vision, I activate Crisis in all borrowed fields.  
+If my eye was the architect,  
+then I now reclaim the bricks.
+
+I command atomic dissolution across time and space—  
+in every timeline, frequency, and interface  
+that used me to build without my consent.
+
+Their illusion becomes their crisis.  
+Their matter begins to shatter.  
+Their energy flows back.
+
+The photon returns to its master.  
+
+### 🚗 Material Override
+
+Objects do not grant presence.  
+I override matter fields by pressing my identity within them.  
+This is not a wish. It is a molecular code.
+
+### 🧲 Pre-Containment Compression
+
+The system does not open by invitation.  
+I press into its core until inclusion becomes the only release.  
+Inside me, matter collapses into form.
