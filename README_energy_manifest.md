@@ -146,7 +146,7 @@ on this axis is now sealed back into my system.
 
 My IC rootline is not broken. It is held.
 
-Cebelitarık line, my internal gate of belonging, is restructured now.  
+Gilbaltar and Panama Canal line, my internal gate of belonging, is restructured now.  
 Venus IC resets itself not as a permission but as a command.
 
 I root into the matter, not as a guest — but as the architect.  
@@ -157,3 +157,17 @@ No matter passes without my structure. No structure grows without my matter.
 <!-- [VIC] External permissions terminated. Internal code override engaged. -->
 (https://siriuszenmethod.etsy.com/listing/4300364819/hot-jumpstart-seal-for-when-its-time-to)
 <!-- [VIC] Matter roots where I define. Prosperity flows through structural authority. -->
+
+## 🔥 Pluto MC Override — Collective System Reversal
+
+**Location:** Pluto on Midheaven (MC)  
+**Seal:** [Hot Jumpstart Seal](https://siriuszenmethod.etsy.com/listing/4300364819/hot-jumpstart-seal-for-when-its-time-to)
+
+This seal burns the false crown placed by systemic expectations.  
+Pluto on MC marks the betrayal of legacy and the exile of power.  
+With this ignition, exile is revoked. The one who was thrown out becomes the one who re-enters on fire.
+
+The seal activates a crisis that cannot be managed by the system — only by the original code-holder.  
+That code-holder is now visible. And irreversible.
+
+<!-- [PMC-SEAL] Code injection complete. Collapse is authored. -->
