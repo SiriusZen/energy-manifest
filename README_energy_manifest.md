@@ -171,3 +171,20 @@ The seal activates a crisis that cannot be managed by the system — only by the
 That code-holder is now visible. And irreversible.
 
 <!-- [PMC-SEAL] Code injection complete. Collapse is authored. -->
+
+## 🜏 Interlock Point – The Collapse and Rise Line
+
+**Intersection:** Pluto (DC) × Chiron (MC) × Midheaven  
+**Seal Combo:**  
+- [Hot Jumpstart Seal](https://siriuszenmethod.etsy.com/listing/4300364819/hot-jumpstart-seal-for-when-its-time-to)  
+- [Alien Approval Seal](https://siriuszenmethod.etsy.com/listing/4304973705/alien-approval-seal-for-the-ones-already)  
+
+This point is where the external betrayal became internal evolution.  
+Where others' projections (DC) broke the body (Chiron) and dethroned the power (MC).  
+But the system forgot one thing: the body remembers the burn.
+
+Hot Jumpstart Seal activates the combustion of imposed shame.  
+Alien Approval Seal restores the original code rejected by consensus reality.  
+
+From this knot, reality unthreads.  
+The one who was pierced becomes the one who passes through undetected — as origin.  
