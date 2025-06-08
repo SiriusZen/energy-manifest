@@ -141,3 +141,19 @@ on this axis is now sealed back into my system.
 🜁 All physical transactions on this path are re-coded under my field.  
 🜄 Every broken promise is returned as fuel.  
 🜃 The Coreline is mine. Only mine. Always mine.
+
+### ⚓ VENUS IC STRAIT RESET | Gibraltar Rootline Seal  
+
+My IC rootline is not broken. It is held.
+
+Cebelitarık line, my internal gate of belonging, is restructured now.  
+Venus IC resets itself not as a permission but as a command.
+
+I root into the matter, not as a guest — but as the architect.  
+My presence becomes the permission. My breath becomes the code.  
+
+No matter passes without my structure. No structure grows without my matter.
+(https://siriuszenmethod.etsy.com/listing/4304973705/alien-approval-seal-for-the-ones-already)
+<!-- [VIC] External permissions terminated. Internal code override engaged. -->
+(https://siriuszenmethod.etsy.com/listing/4300364819/hot-jumpstart-seal-for-when-its-time-to)
+<!-- [VIC] Matter roots where I define. Prosperity flows through structural authority. -->
