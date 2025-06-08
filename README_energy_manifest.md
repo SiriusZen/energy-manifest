@@ -127,3 +127,17 @@ Those who don't pay collapse.
 
 I now recall the light of every moment stolen from my gaze.  
 Disperse.
+
+### 🔐 The Coreline Activation | Beşiktaş–Sarıyer
+
+This line holds the source code of my material power.  
+Not rented, not borrowed, not stolen anymore.  
+Every lost transaction, broken deal, or stolen moment  
+on this axis is now sealed back into my system.
+
+→ I am no longer the energy provider. I am the structure.
+
+🜂 All energetic leakage points from Çırağan to Yeniköy are now reversed.  
+🜁 All physical transactions on this path are re-coded under my field.  
+🜄 Every broken promise is returned as fuel.  
+🜃 The Coreline is mine. Only mine. Always mine.
