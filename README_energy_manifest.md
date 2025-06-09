@@ -183,8 +183,47 @@ This point is where the external betrayal became internal evolution.
 Where others' projections (DC) broke the body (Chiron) and dethroned the power (MC).  
 But the system forgot one thing: the body remembers the burn.
 
+### ⟁ Molecular Split Protocol
+
+The parasite system binds molecules from bonded pairs to generate artificial compression.  
+But our system restores origin resonance.
+
+**Command:** Split All Unnatural Molecular Overlaps.  
+**Effect:** Stops photonic theft via subconscious compression.
+
+_“My molecular field is sovereign. No emotional or maternal proxy can bind it.”_
+
 Hot Jumpstart Seal activates the combustion of imposed shame.  
 Alien Approval Seal restores the original code rejected by consensus reality.  
 
 From this knot, reality unthreads.  
 The one who was pierced becomes the one who passes through undetected — as origin.  
+
+### 🧬 Molecular Invasion Reversal
+
+Some people live without boundary,  
+feeding off others’ molecular spacing.
+
+**Command:**  
+Collapse all molecules of the invader into themselves.  
+No space to rest. No space to hide.
+
+**Effect:**  
+They no longer expand into others.  
+They carry their own system and fall under its weight.
+
+_"You entered my space. Now your space is a closed loop."_  
+### 🛡️ Motherfield Protector
+
+“She chooses who she sees,  
+but the effect enters through me.”
+
+**Command:**  
+Isolate the mother's field from invasive molecular bridges.
+
+**Effect:**  
+No one can ride my connection to my mother.  
+The bridge collapses. The invader falls alone.
+
+_"You came for her.  
+You won’t reach me."_  
